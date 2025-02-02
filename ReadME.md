@@ -1,4 +1,3 @@
-
 # Final Homework Assignment  
 
 Welcome, friends! 🙂 ✋🏼  
